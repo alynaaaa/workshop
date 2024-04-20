@@ -1,1 +1,0 @@
-Patrick, Mayonnaise ist kein Instrument.
